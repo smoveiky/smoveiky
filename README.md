@@ -1,5 +1,5 @@
 **U can call me Sweet⋆🐾°!**
-<img width="736" height="736" alt="15fe85ce565c458678a1c4f7842dd246" src="https://github.com/user-attachments/assets/e7d10741-b342-4ae3-8991-77e1eeae2c51" />
+<img width="653" height="627" alt="Screenshot_2026-11-17-12-37-02-95" src="https://github.com/user-attachments/assets/0fb8baaf-ea99-4633-8f3f-35a2c5eb4be9" />
 ## About me :: ! 🪼⋆.ೃ࿔*:･
           ────୨ৎ────
   *   multi fandom ˙ᵕ˙
@@ -10,7 +10,9 @@
 
         ────୨ৎ────
  ## NOT OK WITHʚଓ
- *shipping siblings.. 
- *sensitive jokes 
- 
- 
+ *shipping siblings
+ *sensitive jokes, ..
+ ## Thanks for reading! 
+ <img width="736" height="736" alt="1ccd2dc703870c615b2ef86d1936302b" src="https://github.com/user-attachments/assets/c96324d2-f231-46da-8cc8-44c808d8b9ac" />
+   ٩(ˊᗜˋ*)و ♡  Have a nice day! <3
+          ⋆⭒˚.⋆🪐 ⋆⭒˚.⋆

@@ -13,6 +13,7 @@
  *shipping siblings
  *sensitive jokes, ..
  ## Thanks for reading! 
- <img width="736" height="736" alt="1ccd2dc703870c615b2ef86d1936302b" src="https://github.com/user-attachments/assets/c96324d2-f231-46da-8cc8-44c808d8b9ac" />
+<img width="220" height="220" alt="pyromaniac-nikolas-rendl" src="pyromaniac-nikolas-rendl.gif" />
+
    ٩(ˊᗜˋ*)و ♡  Have a nice day! <3
           ⋆⭒˚.⋆🪐 ⋆⭒˚.⋆

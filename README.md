@@ -5,8 +5,8 @@
   *   multi fandom ˙ᵕ˙
   *  My mood can fluctuate (sorry if this offends you). TT
   * ૮₍ ´ ꒳ `₎ა I'm quite boring...
-  * bias : Simon,Aiden,Nikolas,Madoka,Jacket,Kangel, Lelouch,C.C,Diana,...(Too much,lol TT)
-<img width="735" height="641" alt="IMG_20261117_111003" src="https://github.com/user-attachments/assets/768037d8-aa76-4921-b078-c8e6fbd1a917" />
+  * bias : Simon,Aiden,Nikolas,Pyromania,Madoka,Jacket,Kangel, Lelouch,C.C,Diana,...(Too much,lol TT)
+<img width="357" height="377" alt="Screenshot_2026-11-17-16-29-55-92" src="https://github.com/user-attachments/assets/850b56fb-e027-4835-b842-adae4fe16646" />
 
         ────୨ৎ────
  ## NOT OK WITHʚଓ

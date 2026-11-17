@@ -5,5 +5,6 @@
   *   multi fandom ˙ᵕ˙
   *  My mood can fluctuate (sorry if this offends you). TT
   * ૮₍ ´ ꒳ `₎ა I'm quite boring...
-  * music : 
+  * bias : Simon,Aiden,Nikolas,Madoka,Jacket,Kangel, Lelouch,C.C,Diana,...(Too much,lol TT)
+  * 
     

@@ -1,3 +1,4 @@
+<img width="736" height="414" alt="66a8f48448b90f4baf666a10f5bda6f1" src="https://github.com/user-attachments/assets/c19e0241-3d52-4910-af99-75eeb116e5cc" />
 **U can call me Sweet⋆🐾°!**
 <img width="653" height="627" alt="Screenshot_2026-11-17-12-37-02-95" src="https://github.com/user-attachments/assets/0fb8baaf-ea99-4633-8f3f-35a2c5eb4be9" />
 ## About me :: ! 🪼⋆.ೃ࿔*:･

@@ -21,3 +21,7 @@
  - U can find me on Pony Town: VN server + Safe server.
 
                  (੭୧‿⏔⏔⏔ ⑅ ꒰ 𓏵 ꒱⑅ ⏔⏔⏔‿ϑ𐑞)
+# DISLIKE :
+- Making inappropriate sexual jokes
+- Annoy (Unless it's my fr)
+  

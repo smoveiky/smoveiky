@@ -15,4 +15,7 @@
 ˚ ✦ . ➜ I'm quite boring
 
       ➜ Mood swings (I apologize if I made you feel uncomfortable TT.)
-      
+  
+  ![GIF](./7efa1fb89eab76ff7a0d36490fdfde90.gif)
+  
+                 (੭୧‿⏔⏔⏔ ⑅ ꒰ 𓏵 ꒱⑅ ⏔⏔⏔‿ϑ𐑞)

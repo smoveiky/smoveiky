@@ -11,3 +11,8 @@
 
 ⠀⠀︵ֺ︵  ㅤ ㅤ𝜚      ۪ ⠀⠀ ⪩⪨
 ⠀⠀⠀⠀⠀୧⠀⠀𓈒⠀⠀ ֺ    㞫     ࣭   ⠀-*﹙I love Jack Stauber's music.﹚* ⠀⠀☆゙    ۪ ࣪ ྀ      ࡛       🍙    ೀ⠀ ⠀ꞌꞋ ࣪  
+#### ૮( ˃ ꒳ ˂)ა!
+˚ ✦ . ➜ I'm quite boring
+
+      ➜ Mood swings (I apologize if I made you feel uncomfortable TT.)
+      

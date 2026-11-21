@@ -22,6 +22,9 @@
 
                  (੭୧‿⏔⏔⏔ ⑅ ꒰ 𓏵 ꒱⑅ ⏔⏔⏔‿ϑ𐑞)
 # DISLIKE :
-- Making inappropriate sexual jokes
+- Don't cross the line
 - Annoy (Unless it's my fr)
+
+  ![GIF](./47ce1556e9db1dbdc4294d618d5f30bd.gif)
+  
   

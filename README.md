@@ -2,6 +2,8 @@
 
                  (੭୧‿⏔⏔⏔ ⑅ ꒰ 𓏵 ꒱⑅ ⏔⏔⏔‿ϑ𐑞)
 ⠀⠀⠀⠀⠀⠀⠀
-- ⑅ ۫ ⠀Call me Sweet⠀˳🐾🦴 :
-♡ 𓐇  ݁  they / them   ݂ 
-_ _
+# ⑅ ۫ ⠀Call me Sweet⠀˳🐾🦴 :
+### ♡ 𓐇  ݁  they / them   ݂  __
+      - free int! 
+      - DNIUF! (sometimes C+H) 📌
+     𐂯  - Multi Fandom   。   ♡ 

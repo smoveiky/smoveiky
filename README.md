@@ -27,4 +27,8 @@
 
   ![GIF](./47ce1556e9db1dbdc4294d618d5f30bd.gif)
   
-  
+        ( ∵∴ ୨୧ ∴∵∴ ୨୧ ∴∵∴ ୨୧ ∴∵  )
+ - Have a nice day!  . 🎀
+   
+   ![GIF](./35a080134e54a3e1027c7374cc692128.gif)
+   
